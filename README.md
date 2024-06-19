@@ -8,4 +8,4 @@ Se quiser saber saber do meu segredo arrasta pra cima 😨😨😱😱
 
 - não pertube estou á dormir 😡😡😡😡😠
 
-  ![](https://tenor.com/pt-BR/view/hakari-gif-3583334722224904517)
+  ![](https://media.tenor.com/MbqP8c2J2UUAAAAM/hakari.gif)
