@@ -8,5 +8,4 @@ Se quiser saber saber do meu segredo arrasta pra cima 😨😨😱😱
 
 - não pertube estou á dormir 😡😡😡😡😠
 
-  ![](https://media.tenor.com/kD0dwlacmR0AAAAM/hakari.gif)
-  ![](https://tenor.com/pt-BR/view/bruh-meme-face-jujutsu-kaisen-jjk-gif-1679447526580806054)
+  ![](https://tenor.com/pt-BR/view/hakari-gif-3583334722224904517)
