@@ -9,3 +9,8 @@ Se quiser saber saber do meu segredo arrasta pra cima 😨😨😱😱
 - não pertube estou á dormir 😡😡😡😡😠
 
   ![](https://media.tenor.com/MbqP8c2J2UUAAAAM/hakari.gif)
+
+
+
+
+![](https://media.tenor.com/EjgO4DQeVYUAAAAM/hakari-dance.gif)
